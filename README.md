@@ -1,4 +1,4 @@
-- [https://hetimes2024.github.io](https://hetimes2024.github.io)
+- [https://thetimes2024.github.io](https://thetimes2024.github.io)
 - [https://www.quora.com/profile/Khach-Hang-0824](https://www.quora.com/profile/Khach-Hang-0824)
 - [https://www.youtube.com/channel/UCKiZ_BhXBhr78n6I6Y7Ys7A](https://www.youtube.com/channel/UCKiZ_BhXBhr78n6I6Y7Ys7A)
 - [https://medium.com/@khachhang130824](https://medium.com/@khachhang130824)
